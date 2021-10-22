@@ -1,0 +1,5 @@
+- 👋 Hi, Betch
+- 👀 I’m a human
+- 🌱 I’m currently learning about how to die
+- 💞️ I’m looking to collaborate on friday night fuckin
+- 📫 How to reach me (idk lmao, weird question lmao)
